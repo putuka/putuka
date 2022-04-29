@@ -1,4 +1,4 @@
-### Olá, Eu ne chamo Arthur Vinicius! 👋
+### Olá, Eu me chamo Arthur Vinicius! 👋
 
 ##
 
